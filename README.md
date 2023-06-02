@@ -6,7 +6,7 @@
 
 :heavy_check_mark: Studied Applied Mathematics and Statistics at University
 
-:heavy_check_mark: Have great expierence as a Recruiter in IT company and Startup
+:heavy_check_mark: Have a great expierence as a Recruiter in IT company and Startup
 
 
 
